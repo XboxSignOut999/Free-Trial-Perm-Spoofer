@@ -1,4 +1,4 @@
-# Free Trial Perm Spoofer
+# Free Trial Hwid Changer
 Permanent Hwid Spoofer by XboxSignOut999
 ![1](https://github.com/user-attachments/assets/e313092a-9f36-4c5b-aca7-1933185b4489) 
 ![2](https://github.com/user-attachments/assets/76de1d5b-7824-4589-8c5f-3516a56fb403)
